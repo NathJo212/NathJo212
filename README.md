@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @NathJo212
+- 👀 I’m interested in Formula 1
+- 📨 Join me with my email nathanjobin@outlook.com
